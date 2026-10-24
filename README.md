@@ -1,2 +1,2 @@
-client made by ai IS it possible?.
+ai client for eagler craft 🤍
 Wowzers
