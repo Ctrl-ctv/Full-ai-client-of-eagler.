@@ -1,2 +1,2 @@
-ai client for eagler craft 🤍
-Wowzers
+ai client for eagler craft :0
+how df did I make it this good...
